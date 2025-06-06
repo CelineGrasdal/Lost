@@ -10,3 +10,9 @@ Double-click on the exe file.
 To have access to the source files and/or if you have any
 questions or notice any errors, 
 please email me at celine1grasdal@gmail.com
+
+![Image](https://github.com/user-attachments/assets/ef3dd441-0149-4916-b011-da8f5445e554)
+
+![Image](https://github.com/user-attachments/assets/37153db5-eca6-4d49-9ac2-a9a3a837c359)
+
+![Image](https://github.com/user-attachments/assets/fe980c09-2a7a-4a37-85ec-669ae64eb90e)
